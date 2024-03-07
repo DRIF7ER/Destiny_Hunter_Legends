@@ -1,0 +1,3 @@
+# **The Following Are The Recountings From Kyx A Hunter's Ghost. These Harrowing Tales Are Classified By The Vanguard Archives But Are None The Less; True.**
+
+> Initial Story...
